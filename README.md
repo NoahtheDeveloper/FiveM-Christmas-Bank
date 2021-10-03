@@ -6,4 +6,4 @@
 > 
 > Hope Everyone Enjoys this release it is most definitely not my last christmas release!
 > 
-> ![alt text](https://make-fligth-simps.great-aga.in/Qe8nRkGkJ5.jpg)
+> ![alt text](https://img-cdn.fivemods.net/unsafe/filters:format(webp):quality(95):sharpen(0.2,0.5,true)/https://storage.fivemods.net/uploads/17/Mo3NWa8c01CH/img/75yjwiOIt1kulYneFPzZ7.jpg)
